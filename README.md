@@ -25,7 +25,7 @@ with it!! Especially even if its towards friends too, I will chew you out! Flirt
 
 Also if anyone disrespects my friends boundaries I will not hesitate to chew you out or block you. I am pretty protective when it comes to friendships and their boundaries.
 - - -
-Just a heads up if you become friends or interact with me: I do not talk too much, I have social awkwardness with meeting new people, so I do apologize if I say something wrong or make the area awkward.. But if you like a silent friend there you go!!
+Just a heads up if you become friends or interact with me: I do not talk too much, I have social awkwardness with meeting new people, so I do apologize if I say something wrong or make the area awkward.. But if you like a silent friend there you go!! Also if I leave randomly, I do apologize. It is a habit I need to break- It mostly happens when I'm on mobile. But, Computer? Thats like 1-4 hours of being on ponytown so winwin
 ![IMG_8890](https://github.com/user-attachments/assets/15c54d80-34bb-4870-b1b2-05087a310492)
 
 - - -
