@@ -15,6 +15,8 @@ Now for Do Not Interacts:
 Okay just general Do Not Interact, Pedos, Zoophiles, Necrophiles, Proshippers, darkshippers, shed twt, lolicons, shotacons, nazis, racists, enablers.
 
 now for very specific dni: people who do not respect boundaries (I see alot of that with creators of certain communities), people who like The Coffin of Leyley and andrew, Yarichin Bitch Club. 
+- - -
+Its a meh for forsaken cosplayers, just dont be weird like ykw. Just do not force me to play forsaken too- I do not like the game all too much now.
 - - - 
 ![IMG_8887](https://github.com/user-attachments/assets/f82c9a16-2bca-42d0-8b35-0e1450710a25)
 
