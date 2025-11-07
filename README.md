@@ -26,6 +26,8 @@ Please do not do anything sexual with me, I am extremely uncomfortable
 with it!! Especially even if its towards friends too, I will chew you out! Flirting is okay with close friends (only jokingly or platonic), please do not flirt if you are over 21 or under 16 please.
 
 Also if anyone disrespects my friends boundaries I will not hesitate to chew you out or block you. I am pretty protective when it comes to friendships and their boundaries.
+
+I only take platonic close relationships, just ask and only if you are a close friend!
 - - -
 Just a heads up if you become friends or interact with me: I do not talk too much, I have social awkwardness with meeting new people, so I do apologize if I say something wrong or make the area awkward.. But if you like a silent friend there you go!! Also if I leave randomly, I do apologize. It is a habit I need to break- It mostly happens when I'm on mobile. But, Computer? Thats like 1-4 hours of being on ponytown so winwin
 
