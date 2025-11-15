@@ -23,7 +23,7 @@ Its a meh for forsaken cosplayers, just dont be weird like ykw. Just do not forc
 Boundaries: I am okay with ships, just do not force me to like it. I do not ship anything really- I rarely do unless its like with ocs x ocs or something or just something to keep friend happy by cosplaying- just no proship or darkship. 
 
 Please do not do anything sexual with me, I am extremely uncomfortable
-with it!! Especially even if its towards friends too, I will chew you out! Flirting is okay with close friends (only jokingly or platonic), please do not flirt if you are over 21 or under 16 please.
+with it!! Especially even if its towards friends too, I will chew you out! Flirting is okay with close friends (only jokingly or platonic), please do not flirt if you are over 21 or under 16 please. pls DNI OVER 21 OR UNDER 16
 
 Also if anyone disrespects my friends boundaries I will not hesitate to chew you out or block you. I am pretty protective when it comes to friendships and their boundaries.
 
